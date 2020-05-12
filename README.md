@@ -1,4 +1,4 @@
-## Aqui você encontra vários cupons com descontos e cashback em várias lojas
+## Aqui você encontra os melhores cupons com desconto e cashback em diversas lojas
 
 ### Petlove
 - **Cashback:** 4,5%
